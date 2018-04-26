@@ -1,0 +1,1 @@
+<iframe src="https://giphy.com/embed/5xtDarqlsEW6F7F14Fq" width="480" height="270" frameBorder="0" class="giphy-embed" allowFullScreen></iframe><p><a href="https://giphy.com/gifs/editingandlayout-smile-beach-drink-5xtDarqlsEW6F7F14Fq">via GIPHY</a></p>
